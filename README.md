@@ -1,5 +1,3 @@
-### Oi! Eu sou a Ângela Oliveira 👋
-
 ### Hi! I'm Ângela Oliveira 👋
 
 <div>
